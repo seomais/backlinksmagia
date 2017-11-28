@@ -1,10 +1,8 @@
-http://backlinks-magia.ml/
-
 <h1>Backlinks Magia</h1>
 
 O melhor software de backlinks em 2018
 
-Compre agora o <a href="http://backlinks-magia.ml/" target="_self">Backlinks Magia</a> o melhor indexador do mundo, nele você encontra tudo que você precisa para melhorar seu conteúdo.
+Compre agora o <a href="http://www.seomais.com.br/backlinks-magia/" target="_self">Backlinks Magia</a> o melhor indexador do mundo, nele você encontra tudo que você precisa para melhorar seu conteúdo.
 
 Ideias De Decoração Para Seu Backlinks Magia Parecer Maior
 
